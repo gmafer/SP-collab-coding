@@ -1,3 +1,0 @@
-# SP-collab-coding
-
-READMEEE
